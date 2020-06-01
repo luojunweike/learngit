@@ -1,2 +1,2 @@
-We don't talk anymore.
-Like we used to do.
+We don't talk anymore. Yes.
+Like we used to do. No.
